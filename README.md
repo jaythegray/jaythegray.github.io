@@ -66,4 +66,4 @@ If you have questions about this Privacy Policy or Perfect Stop's privacy practi
 
 **JMUnlimited**
 
-**Email:** [INSERT YOUR PUBLIC DEVELOPER EMAIL ADDRESS]
+**Email:** martinstex52@gmail.com
